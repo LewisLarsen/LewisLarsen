@@ -1,5 +1,5 @@
 ![](https://github.com/lewislarsen/lewislarsen/blob/master/banner.png)
-## Hello there!
+## Hello there! 🥳
 
 Nice of you to stop by! My name is Lewis and I am a hobbyist web developer, I am also a student studying Information Technology at the University of Derby. 
 
@@ -9,6 +9,6 @@ I am involved in a Star Trek gaming community, [UFPlanets](https://ufplanets.com
 
 When I am not working on some small project, I enjoy watching Science Fiction, with Star Trek being my favourite series and sometimes I play video games, with Overwatch being my game of choice. I do also enjoy some horror movies, with the original Poltergeist from 1983 being one of my favourite movies of all time! 
 
-If you would like to get in contact with me, please email [lewis.larsen@ufplanets.com](mailto:lewis.larsen@ufplaneets.com) and I will get back to you fairly shortly, alternatively you can also DM me on Twitter! [@LewisLarsen](https://twitter.com/LewisLarsen_). Have a question you would like to ask me or want to tell a joke? Whatever it is, feel free to get in touch. 
+Want to get in touch? Email [lewis.larsen@ufplanets.com](mailto:lewis.larsen@ufplanets.com) | Twitter [@LewisLarsen](https://twitter.com/LewisLarsen) | Discord Lewis#9608
 
-Thanks for reading! 
+Thanks for reading! 🖖🏼
