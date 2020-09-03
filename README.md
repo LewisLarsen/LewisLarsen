@@ -1,4 +1,4 @@
-![](https://github.com/LewisLarsen/LewisLarsen/master/banner.png)
+![](https://raw.githubusercontent.com/LewisLarsen/LewisLarsen/master/banner.png)
 ## Hello there! 🥳
 
 Nice of you to stop by! My name is Lewis and I am a hobbyist web developer, I am also a student studying Information Technology at the University of Derby. 
