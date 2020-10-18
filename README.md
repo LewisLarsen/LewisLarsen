@@ -8,6 +8,6 @@ I am involved in a Star Trek gaming community, [UFPlanets](https://ufplanets.com
 
 When I am not working on some small project, I enjoy watching Science Fiction, with Star Trek being my favourite series and sometimes I play video games, with Overwatch being my game of choice. I do also enjoy some horror movies, with the original Poltergeist from 1982 being one of my favourite movies of all time! 
 
-Want to get in touch? Email [lewis.larsen@ufplanets.com](mailto:lewis.larsen@ufplanets.com)
+Want to get in touch? Email [lewis.larsen@ufplanets.com](mailto:lewis.larsen@outlook.com)
 
 Thanks for reading! 🖖🏼
